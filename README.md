@@ -6,3 +6,4 @@ bro if you copy and not put my name on it i will #rip you up
 this app is heavy based on Windows RG
 this #guy is not done yet!
 
+also (btw) windows's anti virus is falsy blocking this junk
